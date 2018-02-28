@@ -1,0 +1,1 @@
+# segametsi_hope_expertise
